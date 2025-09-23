@@ -9,3 +9,7 @@ Showcase your best self—whether that means a fresh-from-the-groomer glamour sh
 ## Where do I ....
 
 why i need to type all of this?
+
+## How can I smell other dogs?
+
+we have a brand new tech.
